@@ -1,6 +1,6 @@
 - 👋 Hi, I’m MADHUKIRAN A.E
 - 👀 I’m interested in SKILL DEVELOPMENT
-- 🌱 I’m currently learning PYTHON
+- 🌱 I’m currently learning PYTHON // JAVA
 - 💞️ I’m looking to collaborate on LEARNING NEW SKILLS
 - 📫 How to reach me "MADHUKIRANAE777@GMAIL.COM"
 - 😄 Pronouns: MADDY
